@@ -1,5 +1,5 @@
 - 👋 Hi, I’m x30n
-- 👀 I’m interested in stable profit
+- 👀 I’m interested in stable dollar oriented profit
 - 🌱 I’m currently learning nothing
 - 💞️ I’m looking to collaborate on operational tasks delegation
 - 📫 How to reach me x3ktnktn@gmail.com
